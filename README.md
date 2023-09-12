@@ -1,0 +1,3 @@
+# Introduction to XI-B-Class-SA Community
+
+XI-B-Class-SA is a community of 11th-grade students studying at Aloysius School. The community is focused on promoting social, emotional, behavioral, and mental health needs of its members. The community also engages in community service learning programs to develop social skills among students. The school leaders play a crucial role in the success of such programs. The community emphasizes learning outcomes and encourages students to develop skills beyond school. The community also recognizes the importance of community health and nursing and provides lectures on the same. The community has adapted to the changing times and has transitioned to online learning during the COVID-19 pandemic.
